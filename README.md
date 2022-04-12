@@ -1,2 +1,0 @@
-# onbwoonbaar-verklaard
-woonount herculeshof
